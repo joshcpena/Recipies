@@ -1,5 +1,4 @@
-
-Pan Sauteed Filet Mignon with Caramel-Brandy Mushroom Sauce
+# Pan Sauteed Filet Mignon with Caramel-Brandy Mushroom Sauce
 
 Cook Time: 22 min
 Yield: 4 servings

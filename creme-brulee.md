@@ -1,6 +1,4 @@
-[Sally's creme brulee](https://sallysbakingaddiction.com/creme-brulee/print/66814/)
-
-# Updated for 40% yield
+# [Sally's creme brulee](https://sallysbakingaddiction.com/creme-brulee/print/66814/)
 
 ## Scaled Crème Brûlée Recipe (40% Yield)
 
